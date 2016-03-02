@@ -1,7 +1,4 @@
 # hello-world
-Kickstart on github!
+Totality at the verge of newborn.
 
-I should begin strongly at the verge of a new creation. 
-
-
-The greatest inspiration is inborn.
+Way up to perfection
